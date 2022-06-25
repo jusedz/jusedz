@@ -1,4 +1,4 @@
-✺桔色导航✺地址发布➤最新地址：http://jusefuli.xyz
+🍊 桔色导航  🍊  地址发布  ➤  最新地址：jusefuli.xyz
 
 牢记永久地址， Ctrl+D 收藏本页，开车不迷路!
 
